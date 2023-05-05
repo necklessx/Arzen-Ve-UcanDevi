@@ -16,12 +16,9 @@ Millete Sallaman 1.10 Boyunda Aşırı Komik Olmuş PWOMPMOHPWMOR
 ![image](https://media.discordapp.net/attachments/1100007990972649563/1104058734516391976/image.png?width=269&height=213)
 
 # Botların
-
-V14 V13 Adı Altında Paylaştın V12'lerin Ve Kullandın Botlar :D
 ![image](https://cdn.discordapp.com/attachments/1100007990972649563/1104059482755043409/image.png)
 ![image](https://cdn.discordapp.com/attachments/1100007990972649563/1104061217456267284/image.png)
 
-Botların
 ![image](https://media.discordapp.net/attachments/1100007990972649563/1104049572990435430/image.png?width=691&height=75)
 ![image](https://media.discordapp.net/attachments/1100007990972649563/1104051175814340668/image.png?width=361&height=220)
 ![image](https://media.discordapp.net/attachments/1100007990972649563/1104051708117663844/image.png?width=350&height=378)
